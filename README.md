@@ -9,3 +9,4 @@ every time mojtaba shows up in a chat or project, you know something useful’s 
 Their approach to every conversation feels genuine and thoughtful. They take time to listen, respond with clarity, and often bring a perspective others overlook. There’s a calm confidence in how they share ideas — never rushed, always insightful. 
 http://kite.foundation/claim
 M251167m@
+0x8b217C8278579A55f4e2Eb4a567c1dABb1956d20
