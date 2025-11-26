@@ -11,4 +11,4 @@ umi moves like something meant to happen slow quiet inevitable like destiny
 gUmi feels like a small spark but somehow it lights up a whole path inside you
 Have you switched to GPT OSS 120B after that?
 Have you compared Grok with Claude Sonnet 4?
-
+یه تابلو تبلیغاتی میخوام برام بزنی با رنگ های متنوع و طرح جذاب به اسم فروشگاه سموم و نهاده های کشاورزی طلایی
