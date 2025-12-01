@@ -12,3 +12,4 @@ gUmi feels like a small spark but somehow it lights up a whole path inside you
 Have you switched to GPT OSS 120B after that?
 Have you compared Grok with Claude Sonnet 4
 Do you need file sharing inside the same workspace?
+Do you hold weekly or daily meetings?
