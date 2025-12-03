@@ -14,3 +14,4 @@ Have you compared Grok with Claude Sonnet 4
 Do you need file sharing inside the same workspace?
 Do you hold weekly or daily meetings?
 NFTSWAITLISTSOON
+Do you prefer Discord or Telegram for starting a new group?
