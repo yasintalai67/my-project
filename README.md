@@ -16,3 +16,4 @@ Do you hold weekly or daily meetings?
 NFTSWAITLISTSOON
 Do you prefer Discord or Telegram for starting a new group?
 Are you looking for something more organized?
+Do you prefer Discord or Telegram for starting a new group?
