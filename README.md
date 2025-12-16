@@ -17,3 +17,4 @@ NFTSWAITLISTSOON
 Do you prefer Discord or Telegram for starting a new group?
 Are you looking for something more organized?
 Do you prefer Discord or Telegram for starting a new group?
+https://medium.com/@talaitabarseyedmojtaba/concrete-vaults-the-easiest-way-to-earn-automated-risk-adjusted-yield-in-defi-d1f6b2d0b86f?postPublishedType=initial
