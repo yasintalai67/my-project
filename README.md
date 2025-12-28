@@ -22,3 +22,4 @@ umi moves like something meant to happen slow quiet inevitable like destiny
 Are you thinking about launching an online product?
 M251167m@
 https://knowledgedrop.saharaai.com/
+concrete turns defi from active farming into capital allocation
